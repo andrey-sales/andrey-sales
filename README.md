@@ -8,7 +8,7 @@ Diferente de outros gays, eu não vou estar no site de paquera ou na balada mais
 
 Antes, quando eu comecei a trabalhar, me perguntaram muito como eram os meus projetos e eu não tinha nenhum pra mostrar porque todos eles eram destinados a clientes específicos. Então, eu fazia aquela entrevista tecnica ao vivo dando o melhor de mim.
 
-## As recomendações dos colegas que trabalharam comigo
+## Como funcionam as recomendações comigo.
 
 Os meus gestores olham para o meu instagram. Então se você tem uma foto comigo, você já tem a recomendação por ser uma pessoa que compartilhou um momento comigo. O mais importante depois das habilidades tecnicas é o que você valoriza. No meu caso, eu valorizo os amigos, a familia e os colegas que partilham várias experiências.
 
