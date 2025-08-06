@@ -12,13 +12,6 @@ Antes, quando eu comecei a trabalhar, me perguntaram muito como eram os meus pro
 
 Os meus gestores olham para o meu instagram. Então se você tem uma foto comigo, você já tem a recomendação por ser uma pessoa que compartilhou um momento comigo. O mais importante depois das habilidades tecnicas é o que você valoriza. No meu caso, eu valorizo os amigos, a familia e os colegas que partilham várias experiências.
 
-
-## O que eu não gosto ?
-
-Em um dos meus trabalhos na minha carreira, eu tive um desintendimento com um colega de trabalho. Eu gostava dele, mas um dos meus amigos pediu para que eu desistisse dele e seguisse em frente. Você acha que ele aceitou? Claro que não. Para que os atritos e a minha performance no trabalho não caissem, eu precisei ficar longe dele sempre que possível. Foi a coisa certa a se fazer? Pelo trabalho sim, pelo desenvolvimento pessoal não. Você nunca vai estar trabalhando com uma máquina o dia inteiro, e não era isso que eu queria para nós dois. No último dia, eu ia me despedir dele e dizer que eu não importava mais com aquilo e que só tinha me afastado dele por pedido dos outros para que ele e nem eu perdessemos os nossos empregos, ele disse: Eu te odeio e ninguém gosta de você. Eu sai do meu trabalho chorando naquele dia. 
-
-Tem algumas coisas ruins quem vem pro bem. E isso foi uma delas. Ele deu o empurrão que eu precisava para conseguir fazer um dos processos seletivos para o nível especialista. O salário era bem alto e a vaga extremamente difícil. Mas na minha cabeça só vinha o **ninguém gosta de você**. Naquele momento, eu estava indo embora para um emprego melhor, com colegas que me fazem sorrir todo dia.
-
 <div style="display: inline_block"><br>
   <img alt="android" height="30" width="40" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/android/android-plain.svg">
   <img alt="ios" height="30" width="40" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/apple/apple-original.svg" />
