@@ -12,6 +12,12 @@ Antes, quando eu comecei a trabalhar, me perguntaram muito como eram os meus pro
 
 Os meus gestores olham para o meu instagram. Então se você tem uma foto comigo, você já tem a recomendação por ser uma pessoa que compartilhou um momento comigo. O mais importante depois das habilidades tecnicas é o que você valoriza. No meu caso, eu valorizo os amigos, a familia e os colegas que partilham várias experiências.
 
+## Tem algo que eu nunca vou conseguir esquecer.
+
+No meu antigo trabalho, eu amava uma pessoa que passava bastante tempo do meu lado. Eu nunca vou esquecer ele porque eu precisei desprezar ele, falar mal dele e me distanciar dele. Tudo isso para conseguir executar o meu contrato de trabalho. No fundo, eu gostava dele e me importava mesmo que eu estivesse distante. Foi por causa dele que eu lutei tanto para conseguir aquilo que eu queria: conseguir dar o meu passo com engenheiro nuvem e planejar o meu futuro como gestor de TI.
+
+Hoje, eu precisei pedir para que ele nunca mais falasse comigo ou se aproximasse de mim, mas eu carrego ele no meu coração para sempre.
+
 <div style="display: inline_block"><br>
   <img alt="android" height="30" width="40" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/android/android-plain.svg">
   <img alt="ios" height="30" width="40" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/apple/apple-original.svg" />
