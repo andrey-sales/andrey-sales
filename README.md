@@ -14,7 +14,7 @@ Os meus gestores olham para o meu instagram. Então se você tem uma foto comigo
 
 ## Tem algo que eu nunca vou conseguir esquecer.
 
-No meu antigo trabalho, eu amava uma pessoa que passava bastante tempo do meu lado. Eu nunca vou esquecer ele porque eu precisei desprezar ele, falar mal dele e me distanciar dele. Tudo isso para conseguir executar o meu contrato de trabalho. No fundo, eu gostava dele e me importava mesmo que eu estivesse distante. Foi por causa dele que eu lutei tanto para conseguir aquilo que eu queria: conseguir dar o meu passo com engenheiro nuvem e planejar o meu futuro como gestor de TI.
+No meu antigo trabalho, eu amava uma pessoa que passava bastante tempo ao meu lado. Eu nunca vou esquecê-lo, porque precisei desprezá-lo, falar mal dele e me distanciar. Tudo isso para conseguir cumprir meu contrato de trabalho. No fundo, eu gostava dele e me importava, mesmo que estivéssemos distantes. Foi por causa dele que lutei tanto para conquistar aquilo que eu queria: dar meu passo como engenheiro de nuvem e planejar meu futuro como gestor de TI.
 
 Hoje, eu precisei pedir para que ele nunca mais falasse comigo ou se aproximasse de mim, mas eu carrego ele no meu coração para sempre.
 
